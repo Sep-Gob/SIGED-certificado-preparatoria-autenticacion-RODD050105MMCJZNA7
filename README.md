@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-RODD050105MMCJZNA7
+RODD050105MMCJZNA7
